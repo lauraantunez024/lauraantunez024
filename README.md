@@ -22,4 +22,4 @@ Here are some non coding related things I'm into
 - Movies - right now it's been a lot of Kung Fu movies and Samurai for me but I'll watch almost anything. 
 - Video Games - The Last of Us 2 is my favorite game ever. But I also love Fall Out, God of War, the original Last of Us and Spider-Man to name a few. 
 - Watching animation
-- Hanging out with my cats
+- Hanging out with my cats (shoutout to my cats!)
